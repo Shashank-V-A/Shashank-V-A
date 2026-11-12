@@ -67,7 +67,7 @@ Win  · HackSpark                  · DSATM                 · 24h full-stack
 2nd  · PixelGenesis @ VertechX    · MVJCE                 · 24h · 2025
 ```
 
-I don't collect certificates for the wall. I collect the 3 a.m. deploys that made the jury lean forward. I love Hackathon..a lot that i too am worried at times, lost count of how many i have been a part of
+I don't collect certificates for the wall. I collect the 3 a.m. deploys that made the jury lean forward. I love Hackathons..a lot that i too am worried at times, lost count of how many i have been a part of
 
 ---
 
